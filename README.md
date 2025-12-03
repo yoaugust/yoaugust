@@ -2,7 +2,7 @@ yo wsg, im agasthya
 
 i do ml, xr, math, game development & design, and frontier tech research
 - discord: @yoaugust
-- email: itzaugust.01@gmail.com
+- email: aganga06@uw.edu
   
 
 
